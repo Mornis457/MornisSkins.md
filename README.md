@@ -3,9 +3,9 @@
 
 
 # [Mornis WWWedit](https://drive.google.com/file/d/14Lqoh5kGgo96jYRPy5ZSgUCrd2q-NdMe/view?usp=sharing)
-![](
+![](https://i.imgur.com/pfcU9jf.jpeg)
 # [Mornis Wichu Remake](https://drive.google.com/file/d/1Z-q4Ej46fupOJtrqWXxitp0CxjzpV-m_/view?usp=sharing)
-![](
+![](https://i.imgur.com/LdAQJto.jpeg)
 # [Mornis 94](https://drive.google.com/file/d/1OuYP9aTsmR-Q6hkJGVAwOOzdg4lR4_GC/view?usp=sharing)
 ![](https://i.imgur.com/TlB3G5o.jpeg)
 # [Personal Skin 20-08-2022](https://drive.google.com/file/d/1XYmlHzxa_ADzKBBYnqwD28qUHJnxCZEt/view?usp=sharing)
